@@ -1,0 +1,1 @@
+# CaptureOne-Studio
